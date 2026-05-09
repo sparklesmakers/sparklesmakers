@@ -1,7 +1,7 @@
 <div align="center"><br/>
 
-wip
+still wip page yeahhh
 
-iwc, whisper to interact only please, thank you, cuddles are very welcome
+iwc, whisper to interact only please, do not copy nor do not interact with me if you're under 16, thank you, cuddles are very, verywelcome js as any interactions, ahve anice day
   
 [𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://astariomaggelen.atabook.org/)ㅤ [𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾](https://astariomaggelen.straw.page/)
